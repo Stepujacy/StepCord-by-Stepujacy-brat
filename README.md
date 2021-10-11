@@ -1,1 +1,1 @@
-# StepCord-by-St-puj-cy-brat
+# StepCord-by-Stepujacy-brat
