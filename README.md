@@ -1,1 +1,1 @@
-# StepCord-by-Stepujacy-brat
+# StepCord by Stępujący brat!
